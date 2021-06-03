@@ -6,3 +6,5 @@ Who's periods were quite stable.
 At every full moon,
 she'd take out a spoon,
 and drink herself under the table.
+
+West Vagina | WEST VAGINA, MOUNT THAT MAMA. TAKE ME HOME, WITH A GIRL AND A POLE!!!
